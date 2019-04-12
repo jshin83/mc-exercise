@@ -1,3 +1,5 @@
+I am the guy starting making mistakes. My bad. -----Bob
+
 Bob and Carol here. yadadada working hard, finished feature in record time
 
 Joke (http://www.laughfactory.com/jokes/latest-jokes)
